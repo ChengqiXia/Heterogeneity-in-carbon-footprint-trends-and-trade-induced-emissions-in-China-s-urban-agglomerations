@@ -1,0 +1,1 @@
+# Heterogeneity-in-carbon-footprint-trends-and-trade-induced-emissions-in-China-s-urban-agglomerations
